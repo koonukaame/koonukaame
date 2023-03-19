@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Masha 👋
 
 I'm just a coding enthusiast who loves to code.
 

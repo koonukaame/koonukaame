@@ -1,6 +1,6 @@
 ### Hi there, I'm Masha 👋
 
-I'm just a coding enthusiast who loves to code.
+I'm just a coding enthusiast.
 
 You can reach me at [Telegram](https://t.me/koonukaame).
 
